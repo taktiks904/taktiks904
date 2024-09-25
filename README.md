@@ -1,6 +1,6 @@
 # About Me
 ## My Interests
- I like to play guitar and make music.
+ I like to play guitar and make music.  
  I am a small business owner.
 
 ## My Favorite Websites
